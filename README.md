@@ -1,1 +1,1 @@
-https://spydercyber.github.io/rsschool-cv/cv
+https://spydercyber.github.io/rsschool-cv/
